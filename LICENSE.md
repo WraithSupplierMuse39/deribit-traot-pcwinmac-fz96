@@ -1,4 +1,4 @@
-# 
+# Profesional deribit trading bot plantillas for Mac OS | Premium deribit trading bot plantillas for PC Windows. Featuring estrategia de reversión a la media and análisis de momento — optimized for maximum performance.
 
 
 
